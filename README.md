@@ -18,7 +18,7 @@
 
   <p align="center">
 <sub>
-link soon
+<a href="https://kissmissyirl.atabook.org/">ata</a>
 </sub>
     
 
