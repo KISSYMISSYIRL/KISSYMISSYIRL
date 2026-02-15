@@ -16,9 +16,9 @@
   <p align="center">
   <img src="https://github.com/KISSYMISSYIRL/KISSYMISSYIRL/blob/33b37a76571bc8da269a14c74c0aa9d0714fa81f/pink%20hearts.webp"/>
 
-  <p align="center"> <br>
+  <p align="center">
 <sub>
-<3
+link soon
 </sub>
     
 
