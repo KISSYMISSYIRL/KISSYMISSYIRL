@@ -18,7 +18,7 @@
 
   <p align="center">
 <sub>
-<a href="https://kissmissyirl.atabook.org/">ata</a>
+<a href="https://kissmissyirl.atabook.org/">>⩊<</a>
 </sub>
     
 
