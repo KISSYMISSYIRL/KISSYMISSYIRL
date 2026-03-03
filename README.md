@@ -18,7 +18,8 @@
 
   <p align="center">
 <sub>
-<a href="https://kissmissyirl.atabook.org/">>⩊<</a>
+<a href="https://kissmissyirl.atabook.org/">>⩊<</a>ㅤ.ㅤ
+<a href="https://pronouns.cc/@kissychu">>⩊<</a>
 </sub>
     
 
